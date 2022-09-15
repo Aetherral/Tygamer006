@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tygamer006
-- 👀 I’m interested in movement based shooters
+- 👀 I’m interested in idk something
 - 🌱 I’m currently learning the inner workings of your house
 - 📫 Im in your walls
 
